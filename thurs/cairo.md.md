@@ -99,9 +99,5 @@ Proficiency in technologis is not a goal in itself.
 projects are amazing if they are useful for readers. Not because the designer can show off his technical skills.
 
 
-** private chat **
-alberto.cairo@gmail.com
-How to convert passive designers into visual journalists
-Give full journalism training to designers. Promote those who show interest in content, read the paper every day etc.
 
 
